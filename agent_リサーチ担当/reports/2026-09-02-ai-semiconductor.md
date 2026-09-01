@@ -1,0 +1,1 @@
+ステップ2（ChatGPT）の出力結果（Response / Text など）
